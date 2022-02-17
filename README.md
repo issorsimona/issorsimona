@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @issorsimona
+- 👀 I’m interested in regenerative dynamics 
+- 🌱 I’m currently wondering arounf potential tokens - Nfts use for regenerative purposes
+- 💞️ I’m looking to collaborate on regenerative projects 
+- 📫 How to reach me Discord Issor#1263
+- 
